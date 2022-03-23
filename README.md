@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RiccardoColella1A
+- 👀 I’m interested in developing the future with you
+- 🌱 I’m currently learning new things
+- 💞️ I’m looking to collaborate on interesting projects with you
